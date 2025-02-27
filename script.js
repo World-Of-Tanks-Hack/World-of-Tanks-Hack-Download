@@ -1,0 +1,1 @@
+console.log("World of Tanks Hack is active!");
